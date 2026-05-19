@@ -1,4 +1,4 @@
-# 
+# automatic Wave para PC addons é o melhor Wave para PC addons com balanco patrimonial e relatorios financeiros. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
